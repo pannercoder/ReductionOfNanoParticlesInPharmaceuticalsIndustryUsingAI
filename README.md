@@ -1,0 +1,2 @@
+# ReductionOfNanoParticlesInPharmaceuticalsIndustryUsingAI
+ReductionOfNanoParticlesInPharmaceuticalsIndustryUsingAI
